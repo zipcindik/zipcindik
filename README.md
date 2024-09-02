@@ -8,8 +8,8 @@
 zipcindik/zipcindik is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-<a href="https://www.tatlisohbet.org" rel="nofollow">sohbet</a>
+<a href="https://www.tatlisohbet.com.tr" rel="nofollow">sohbet odaları </a>
 
- <a href="https://www.sohbetkeyfim.net" rel="nofollow">canlı sohbet</a>
+ <a href="https://www.sohbetkeyfim.net" rel="nofollow">sohbet siteleri </a>
 
- <a href="https://www.tatlifm.net" rel="nofollow">radyo sohbet</a>
+ <a href="https://www.sohbetgir.net" rel="nofollow">sohbet odaları</a>
